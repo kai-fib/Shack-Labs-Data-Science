@@ -22,4 +22,4 @@ The following are done under each colab notebooks:
                                                        
                                                        
                                                        
-                                                       🌟❤🌟 
+                                                  🌟❤🌟 
